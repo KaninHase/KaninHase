@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KaninHase
-- 👀 I’m interested in ... Web Design
+- 👀 I’m interested in ... Web Design and Classic Mussic
 - 🌱 I’m currently learning ...Web Design
-- 💞️ I’m looking to collaborate on ...
+- 💞️ let's learn together ...
 - 📫 How to reach me ...lorrti.19@gmail.com
 
 <!---
