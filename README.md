@@ -5,6 +5,5 @@
 - 📫 How to reach me ...lorrti.19@gmail.com
 
 <!---
-KaninHase/KaninHase is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+All Projects are made with ❤️ by 🐰 ( KaninHase), pls respect my work as i respect yours 🧸
 --->
