@@ -8,4 +8,4 @@
 
 🦖 I 💖 Uchiha Itachi ,Levi Ackerman ,Jinx ,Sano Manjiro
 
-💖🧸 Ich mach alle meine Designs mit viel Liebe 💖🧸
+💖🧸 Ich mach alle meine Designs mit viel Liebe 🧸💖
