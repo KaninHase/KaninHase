@@ -6,7 +6,7 @@
 
 🎀 ich liebe Animes ,Musik und antike Puppen
 
-🦖 I 💖 Uchiha Itachi ,Levi Ackerman ,Jinx ,Sano Manjiro ,Loki Laufeyson 💚
+🦖 I 💖 Uchiha Itachi ,Levi Ackerman ,Jinx ,Sano Manjiro ,Juuzou Suzuya ,Loki Laufeyson 💚
  
 💖🧸 Ich mach alle meine Designs mit viel Liebe 🧸💖
 
