@@ -4,7 +4,7 @@
 
 🎮 ich liebe Videospiele
 
-🎀 ich liebe Animes ,Musik und antike Puppen
+🎀 ich liebe Animes ,Musik und antike Puppen und Cinnamoroll 💙
 
 🦖 I 💖 Uchiha Itachi ,Levi Ackerman ,Jinx ,Sano Manjiro ,Juuzou Suzuya ,Cinnamoroll ,Loki Laufeyson 💚
  
