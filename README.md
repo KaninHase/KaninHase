@@ -1,4 +1,4 @@
-💙💜 Jinx Uchiha 🖤❤
+💙💜 Jinx 💙💜
 
 🎈 Ich mach Web-Design ,und erstelle Webseites
 
