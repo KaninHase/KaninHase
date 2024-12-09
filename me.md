@@ -1,10 +1,10 @@
 💙💜 Jinx 💙💜
 
-🎈 Ich mach Web-Design ,und erstelle Webseites
+🎈 Ich mach Webdesign ,und erstelle Webseiten
 
 🎮 ich liebe Videospiele
 
-🎀 ich liebe Animes ,Grunge Music und antike Puppen und Cinnamoroll 💙
+🎀 ich liebe Animes ,Grunge Musik und antike Puppen und Cinnamoroll 💙
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠻⣶⣦⣤⣄⡀⠀⠀⠙⢿⣿⣷⣶⣤⡀⠀⠢⡄⠀⠀⠙⣿⣦⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⢿⣿⣿⣿⣷⣶⣬⣻⣿⣿⣿⣿⣷⣤⡙⣦⠀⠀⢹⣿⣿⡄⢰⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
